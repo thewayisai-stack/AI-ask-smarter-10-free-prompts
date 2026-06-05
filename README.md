@@ -1,0 +1,1 @@
+# AI-ask-smarter-10-free-prompts
